@@ -1,4 +1,7 @@
-### Salve Salve <img align="center" alt="Dri." height="50" width="50" src="https://i.gifer.com/origin/f5/f5baef4b6b6677020ab8d091ef78a3bc_w200.gif"> <div> 
+### SALVE! 
+<a href="https://theuselessweb.site/ducksarethebest.com/" target="_blank"><img height="55" width="55" src="https://i.gifer.com/origin/f5/f5baef4b6b6677020ab8d091ef78a3bc_w200.gif" target="_blank"></a>
+  </div>
+<div> 
 <a href="https://instagram.com/dri.sakis" target="_blank"><img src="https://img.shields.io/badge/-Instagram-%23E4405F?style=for-the-badge&logo=instagram&logoColor=white" target="_blank"></a>
   </div>
 
